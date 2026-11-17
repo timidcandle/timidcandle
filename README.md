@@ -1,3 +1,9 @@
+<p align="center">
+<a href="https://dreamyarrows.carrd.co/">carrd</a> <a href="https://thesorrowfulprince.atabook.org/">ata</a> <a href="https://dreamyarrows.straw.page/">strawpage</a>
+</p>
+
+
+
 
 <p align="center">
   <img src="https://cdn.discordapp.com/attachments/1541413208877834252/1570376771285680199/Untitled614_20261112175134__fliter--purple-warm__channel--red__mode--multiply.png?ex=6af6ded6&is=6af58d56&hm=ae95deb213d043f47f2661259267e9832c564aba3533c451c98295ee2bf786b1&" width=423 height=300 />
