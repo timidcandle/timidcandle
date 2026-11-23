@@ -2,7 +2,7 @@
 <a href="https://dreamyarrows.carrd.co/">carrd</a> <a href="https://thesorrowfulprince.atabook.org/">ata</a> <a href="https://dreamyarrows.straw.page/">strawpage</a>
 </p>
 
-too lazy to change
+too lazy to remake
 
 <p align="center">
 <img src="https://i.postimg.cc/PxJ04Dmy/Untitled11-20261122204229.png">
