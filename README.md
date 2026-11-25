@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-<img src="https://i.postimg.cc/mDM77hJG/image-1.png">
+<img src="https://i.postimg.cc/9QK41CG2/image-1.png">
 </p>
 <p align="center">
 #madeby<a href="https://github.com/d3ff97">oomf</a>
