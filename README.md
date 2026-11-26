@@ -20,11 +20,11 @@
 <div align="center">
 <details>
    <summary>$\color{#602D62}{\text{dni}}$</summary>
-T.R.A.S.H
+$\color{#A84368}{\text{T.R.A.S.H}}$
   <br>
-those that have issues with me or my friends.
+$\color{#A84368}{\text{those that have issues with me or my friends}}$
   <br>
-  basic dnis
+$\color{#A84368}{\text{basic dnis.}}$
   </details>
 </div>
 </p>
