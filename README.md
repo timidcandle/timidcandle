@@ -30,3 +30,8 @@ $\color{#A84368}{\text{basic dnis.}}$
   </details>
 </div>
 </p>
+</td></tr></table>
+
+<p align="center">
+<img src="https://i.postimg.cc/g06nsNtG/1795650750700.jpg"> droolsemoji
+</p>
