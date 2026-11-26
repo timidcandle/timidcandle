@@ -19,8 +19,12 @@
 
 <div align="center">
 <details>
-   <summary>dni</summary>
-WIIPP
+   <summary>$\color{#602D62}{\text{dni}}$</summary>
+T.R.A.S.H
+  <br>
+those that have issues with me or my friends.
+  <br>
+  basic dnis
   </details>
 </div>
 </p>
