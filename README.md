@@ -26,8 +26,6 @@ $\color{#442A61}{\text{so/sp 296}}$ $\color{#602D62}{\text{ENFJ}}$ $\color{#A843
    <summary>$\color{#602D62}{\text{dni}}$</summary>
 $\color{#A84368}{\text{T.R.A.S.H}}$
   <br>
-$\color{#A84368}{\text{those that have issues with me or my friends}}$
-  <br>
 $\color{#A84368}{\text{basic dnis.}}$
   </details>
 </div>
