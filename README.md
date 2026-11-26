@@ -30,7 +30,11 @@ $\color{#442A61}{\text{so/sp 296}}$ $\color{#602D62}{\text{ENFJ}}$   ﹒⋆   �
    <summary>$\color{#602D62}{\text{dni}}$</summary>
 $\color{#A84368}{\text{T.R.A.S.H}}$
   <br>
-$\color{#A84368}{\text{basic dnis.}}$
+$\color{#A84368}{\text{proshippers/darkshippers}}$
+  <br>
+  $\color{#A84368}{\text{radical inclusionist , zionist}}$
+  <br>
+  $\color{#A84368}{\text{basic dnis.}}$
   </details>
 </div>
 </p>
