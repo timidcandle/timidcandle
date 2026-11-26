@@ -15,6 +15,6 @@
   $\color{#442A61}{\text{encouraged}}$
 
 [<img src="https://i.postimg.cc/jd65BHKP/Untitled627-20261126101922.png" alt="Alt text" width="150">](https://thesorrowfulprince.atabook.org/)
-[<img src="https://i.postimg.cc/s2GRCzS6/Untitled627-20261126101817.png" alt="Alt text" width="150">](https://dreamyarrows.straw.page/)
+[<img src="https://i.postimg.cc/kXgzd9P6/Untitled627-20261126141338.png" alt="Alt text" width="150">](https://dreamyarrows.straw.page/)
 
 </p>
