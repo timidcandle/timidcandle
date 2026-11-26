@@ -20,6 +20,10 @@ $\color{#442A61}{\text{so/sp 296}}$ $\color{#602D62}{\text{ENFJ}}$   ﹒⋆   �
 
 [<img src="https://i.postimg.cc/jd65BHKP/Untitled627-20261126101922.png" alt="Alt text" width="150">](https://thesorrowfulprince.atabook.org/)
 [<img src="https://i.postimg.cc/kXgzd9P6/Untitled627-20261126141338.png" alt="Alt text" width="150">](https://dreamyarrows.straw.page/)
+<br>
+<p align="center">
+<sup><sub>Atabook</sub></sup> ⠀ ⠀  ⠀ ⠀⠀ ⠀ ⠀⠀ <sup><sub>Strawpage</sub></sup>
+</p>
 
 <div align="center">
 <details>
@@ -31,7 +35,3 @@ $\color{#A84368}{\text{basic dnis.}}$
 </div>
 </p>
 </td></tr></table>
-
-<p align="center">
-<img src="https://i.postimg.cc/g06nsNtG/1795650750700.jpg"> droolsemoji
-</p>
