@@ -7,12 +7,13 @@
 </p>
 
 <p align="center">
+<img src="https://i.postimg.cc/sfkMdZsy/Untitled627-20261126101752.png">
+</p>
+
+<p align="center">
 <a href="https://dreamyarrows.carrd.co/">carrd</a> <a href="https://thesorrowfulprince.atabook.org/">ata</a> <a href="https://dreamyarrows.straw.page/">strawpage</a>
 </p>
 
-
-<div align="center">
-<table><tr><td>
 imtoo lazy ti finishd
 
 
