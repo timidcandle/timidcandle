@@ -13,6 +13,10 @@
 <p align="center">
   $\color{#A84368}{\text{aroace}}$ $\color{#602D62}{\text{c+h}}$ 
   $\color{#442A61}{\text{encouraged}}$
+  
+  <br>
+$\color{#442A61}{\text{so/sp 296}}$ $\color{#602D62}{\text{ENFJ}}$ $\color{#A84368}{\text{VEFL}}$
+  
 
 [<img src="https://i.postimg.cc/jd65BHKP/Untitled627-20261126101922.png" alt="Alt text" width="150">](https://thesorrowfulprince.atabook.org/)
 [<img src="https://i.postimg.cc/kXgzd9P6/Untitled627-20261126141338.png" alt="Alt text" width="150">](https://dreamyarrows.straw.page/)
