@@ -17,4 +17,10 @@
 [<img src="https://i.postimg.cc/jd65BHKP/Untitled627-20261126101922.png" alt="Alt text" width="150">](https://thesorrowfulprince.atabook.org/)
 [<img src="https://i.postimg.cc/kXgzd9P6/Untitled627-20261126141338.png" alt="Alt text" width="150">](https://dreamyarrows.straw.page/)
 
+<div align="center">
+<details>
+   <summary>dni</summary>
+WIIPP
+  </details>
+</div>
 </p>
