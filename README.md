@@ -9,13 +9,13 @@
 <div align="center">
 <table><tr><td>
 <p align="center">
-<img src="https://i.postimg.cc/kXmBg1g9/rccfv7.gif"> $\color{#442A61}{\text{Ivan or Dream}}$ $\color{#602D62}{\text{⠀⠀ᵎᵎ⠀ ⠀}}$ $\color{#A84368}{\text{genderfluid}}$ <img src="https://i.postimg.cc/0N8YK55x/70fu8a.gif">
-<p align="center">
-  $\color{#A84368}{\text{aroace}}$ $\color{#602D62}{\text{c+h}}$ 
-  $\color{#442A61}{\text{encouraged}}$
-  
+$\color{#442A61}{\text{Ivan or Dream}}$ $\color{#602D62}{\text{⠀ᵎᵎ⠀}}$ $\color{#A84368}{\text{genderfluid}}$ 
   <br>
-$\color{#442A61}{\text{so/sp 296}}$ $\color{#602D62}{\text{ENFJ}}$ $\color{#A84368}{\text{VEFL}}$
+<img src="https://i.postimg.cc/kXmBg1g9/rccfv7.gif">  ⠀ ⠀
+$\color{#A84368}{\text{aroace}}$ ⠀  ⩋ ️   $\color{#602D62}{\text{c+h}}$ 
+  $\color{#442A61}{\text{encouraged}}$️  ⠀ ⠀<img src="https://i.postimg.cc/0N8YK55x/70fu8a.gif">
+  <br>
+$\color{#442A61}{\text{so/sp 296}}$ $\color{#602D62}{\text{ENFJ}}$   ﹒⋆   ⠀ $\color{#A84368}{\text{VEFL}}$
   
 
 [<img src="https://i.postimg.cc/jd65BHKP/Untitled627-20261126101922.png" alt="Alt text" width="150">](https://thesorrowfulprince.atabook.org/)
