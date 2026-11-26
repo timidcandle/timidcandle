@@ -8,6 +8,7 @@
 
 <div align="center">
 <table><tr><td>
+<p align="center">
 <img src="https://i.postimg.cc/kXmBg1g9/rccfv7.gif"> $\color{#442A61}{\text{Ivan or Dream}}$ $\color{#602D62}{\text{⠀⠀ᵎᵎ⠀ ⠀}}$ $\color{#A84368}{\text{genderfluid}}$ <img src="https://i.postimg.cc/0N8YK55x/70fu8a.gif">
 <p align="center">
   $\color{#A84368}{\text{aroace}}$ $\color{#602D62}{\text{c+h}}$ 
